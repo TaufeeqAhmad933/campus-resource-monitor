@@ -264,4 +264,11 @@ GitHub: [https://github.com/TaufeeqAhmad933](https://github.com/TaufeeqAhmad933)
 
 ---
 
+# Results
+<img width="1919" height="930" alt="Screenshot 2026-01-04 155438" src="https://github.com/user-attachments/assets/34e2b6b1-8dde-4c83-a620-28ade03e3df7" />
+<img width="1790" height="976" alt="Screenshot 2026-01-04 155504" src="https://github.com/user-attachments/assets/92a65ba9-5775-4a5d-8a6c-276d7bf68bb0" />
+<img width="1790" height="986" alt="Screenshot 2026-01-04 155529" src="https://github.com/user-attachments/assets/fe2fe288-d462-477c-8efd-514ce6a07aab" />
+
+
+
 
